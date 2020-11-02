@@ -3,4 +3,4 @@
 
 Hi everyone!
 
-I'm Anna Machado, I'm currently taking my final course GIST604B required for the MS-GIST program, after this semester I only have to complete my master's project to be done with the program. 
+I'm Anna Machado, I'm currently taking my final course GIST604B required for the MS-GIST program for which I'm very excited, after this semester I only have to complete my master's project to be done with the program.  
